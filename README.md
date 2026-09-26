@@ -9,8 +9,8 @@ $\small{\textsf{ }}$
  >1. i go by he/him pronouns and i am male <sub>thats 2 things<sub>
  >2. i love art so much, it's my special interest
 > 3. i enjoy clowns, the aesthetic "kidcore", i collect toys, and im inspired by my childhood.
+---
 
-
- 
+im not good at coding
 
  [strawpage](https://topapart.straw.page)   [youtube](https://www.youtube.com/@ttoiletpaperr)  [commissions](https://artistree.io/ttoiletpaperrart)
