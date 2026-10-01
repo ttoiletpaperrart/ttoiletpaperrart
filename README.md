@@ -13,4 +13,4 @@ $\small{\textsf{ }}$
 
 im not good at coding
 
- [strawpage](https://topapart.straw.page)   [youtube](https://www.youtube.com/@ttoiletpaperr)  [commissions](https://artistree.io/ttoiletpaperrart)
+ [strawpage](https://topapart.straw.page)   [youtube](https://www.youtube.com/@ttoiletpaperr)  [commissions](https://artistree.io/ttoiletpaperrart) [pronouns](https://en.pronouns.page/@ttoiletpaperr)
